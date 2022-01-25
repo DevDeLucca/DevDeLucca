@@ -1,7 +1,3 @@
-### Hi there 👋
-
-
-
 ## Hey peoples, sou o Lucas Evangelista, criadora de conteúdo de programação e tecnologia!
 <div align="center">
   <a href="https://github.com/DevDeLucca/DevDeLucca">
