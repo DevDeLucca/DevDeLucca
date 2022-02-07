@@ -5,7 +5,10 @@ as melhores lições de vida, como costumes e horarios regras a se seguirem<br>
 tenho 23 anos, passei por algumas das maiores multinacionas que sediam o 🇧🇷<br>
 Atualmente faço parte da Equipe Ci&t, me redescobrindo como desenvolvedor Java 💟<br>
 Colocando em partica bons costumes de programação orientada a objetos<br>
-  Me especializando para me tornar bilingue fluente, em ingles e alemão<br></p>
+Me especializando para me tornar bilingue fluente, em ingles e alemão<br>
+  
+  Amo a possibilidade de estudar astronomia, as teorias de albert einstein<br>
+  Stephen Hawking ♥️ ❤️ 🏆</p>
   
   <hr />
   
